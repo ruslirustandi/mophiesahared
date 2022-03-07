@@ -1,1 +1,3 @@
 # mophiesahared
+
+laginyoba dulu
